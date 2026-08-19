@@ -5,7 +5,7 @@
 
 <p align="center"><ins><B> WELCOME TO MY PAGE </B></ins></p>
 
-playlists:
+playlists (just for fun!):
 * [Welcome to Horrorland](https://open.spotify.com/playlist/2jzbc2ber6DJrktDFA1zvJ?si=rUZ1IR7NRQuFeKdwcU-7ug&pi=75goF9abS6KJk)
 * [🍊 60s+70s mix](https://open.spotify.com/playlist/6zHhSb62eJeinATthc2fnd?si=V9oJ2epMTDOJNWesTlg55Q&pi=KGVDRcXKTCiAz)
 * [◇ CYBER Y2K ◇](https://open.spotify.com/playlist/5ghgTIJTCO5ywVCjDBQB6Y?si=u581DsrqQumdn9wSEPKxbw&pi=9pbmhCB5RFaKy)
