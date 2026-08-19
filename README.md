@@ -13,7 +13,6 @@ playlists:
 * [Daydream In Blue](https://open.spotify.com/playlist/7vLz0EIPAjRo7nzWbZh1ia?si=VVLImO5tT5KKLMTy1Tv-FA&pi=5p-bnYenTH2Yt)
 * [!!ACTUAL weirdcore!!](https://open.spotify.com/playlist/3y9lnNdvwla2vm790irAUd?si=90PrUCWDQBmJwQes3HkTPw&pi=BcQFA4pxRmWi6)
 * [📺idk what to call this playlist](https://open.spotify.com/playlist/4Jf5CSxOfgXBNzWasQbie9?si=vnFaqYNtQNOhxcPcHnWa1A&pi=qU2jkZXfTf2vX)
-* [🐞🌱💧]([https://open.spotify.com/playlist/5PyRkjwp417ugT495s2B1s?si=xUfLE--eTVmAwxwgQIaS2g&pi=VPsw_78PRRykS](https://open.spotify.com/playlist/0Ew8JAT6UZzS1pHe0k1Boe?si=1UfCp_itQzqaPj6Y3VLY9Q&utm_source=copy-link&pi=_x2gbGJ5QAiwQ))
 
 quizzes:
 * [which of my favorite aesthetics are you](https://uquiz.com/q43cqO)
