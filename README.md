@@ -8,7 +8,8 @@
 
 
 
-<p align="center"><ins><B> WELCOME TO THE LAB </B></ins></p>
+<h2><p align="center"><ins><B> WELCOME TO THE LAB </B></ins></p></h2>
+
 
 
 quizzes:
