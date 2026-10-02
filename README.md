@@ -18,7 +18,15 @@ quizzes:
 * [pick stuff and i'll give an actual weirdcore song](https://uquiz.com/czvTOs)
 * [let me give you actual weirdcore songs 2!](https://uquiz.com/SFiWzn)
 * [which of my horribly ugly minion ocs are you](https://uquiz.com/BR5tTL)
-  
+
+<p align="center"><img src="https://x02.me/i/uHaR1w.gif"/></p>
+
+fun sites to visit:
+* [classic kidpix](https://kidpix.app/)
+* [classic mspaint](https://jspaint.app/#local:428f82a156831)
+* [friv classic](https://www.frivclassic.com/)
+* [wigglypaint](https://wigglypaint.net/)
+
 <p align="center"><img src="https://x02.me/i/6Kce1n.gif"/></p>
 
 <img src="https://64.media.tumblr.com/4ab08389650d31476de1656e382a872d/e4eccd3b03350099-64/s1280x1920/0b554f6389b45cb7577c4fc5698e0215c6c49a8d.pnj"/>
