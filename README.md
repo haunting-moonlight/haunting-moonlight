@@ -1,9 +1,14 @@
-<p align="center"><img src="https://files.catbox.moe/8dgdt4.gif"/></p>
+<img src="https://64.media.tumblr.com/4ab08389650d31476de1656e382a872d/e4eccd3b03350099-64/s1280x1920/0b554f6389b45cb7577c4fc5698e0215c6c49a8d.pnj">
 
 
-<p align="center"><img src="https://gifcity.carrd.co/assets/images/gallery38/0f6d63ba.gif?v=49efbe4c"/></p>
+<p align="center"><img src="https://files.catbox.moe/skf8qv.gif"/></p>
 
-<p align="center"><ins><B> WELCOME TO MY PAGE </B></ins></p>
+
+<p align="center"><img src="https://64.media.tumblr.com/41ea192bce3209185fd47b6256c9490b/2892937afd63c936-7d/s250x400/920027cb56d21f2f858d6a978a2e163e4e87f99f.gif"/><img src="https://64.media.tumblr.com/41ea192bce3209185fd47b6256c9490b/2892937afd63c936-7d/s250x400/920027cb56d21f2f858d6a978a2e163e4e87f99f.gif"/><img src="https://64.media.tumblr.com/41ea192bce3209185fd47b6256c9490b/2892937afd63c936-7d/s250x400/920027cb56d21f2f858d6a978a2e163e4e87f99f.gif"/>
+
+
+
+<p align="center"><ins><B> WELCOME TO THE LAB </B></ins></p>
 
 
 quizzes:
@@ -26,8 +31,9 @@ quizzes:
 
 </p>
 
+<img src="https://64.media.tumblr.com/4ab08389650d31476de1656e382a872d/e4eccd3b03350099-64/s1280x1920/0b554f6389b45cb7577c4fc5698e0215c6c49a8d.pnj"/>
 
-<p align="center"><img src="https://img1.picmix.com/output/stamp/normal/0/8/0/3/503080_aaea7.gif"/><img src="https://img1.picmix.com/output/stamp/normal/0/8/0/3/503080_aaea7.gif"/><img src="https://img1.picmix.com/output/stamp/normal/0/8/0/3/503080_aaea7.gif"/><img src="https://img1.picmix.com/output/stamp/normal/0/8/0/3/503080_aaea7.gif"/><img src="https://img1.picmix.com/output/stamp/normal/0/8/0/3/503080_aaea7.gif"/><img src="https://img1.picmix.com/output/stamp/normal/0/8/0/3/503080_aaea7.gif"/><img src="https://img1.picmix.com/output/stamp/normal/0/8/0/3/503080_aaea7.gif"/></p>
+
 
 
 
